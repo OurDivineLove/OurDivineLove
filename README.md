@@ -18,17 +18,22 @@
 
 ## Awakening Love
 
-![Devoted Vows](
+![Devoted Vows](https://c10.patreonusercontent.com/4/patreon-media/p/post/93612181/d24ea7bfbc1c4a5ea3298420fc1117ca/eyJ3Ijo2MjB9/1.png?token-time=1709510400&token-hash=iqnl_34XoJDiYfCM9ZZvrQd39SAr4IXtTqKaq7eIcGA%3D)
 
 " *Where Cecilias Bloom, a thousand drafts preceding my declaration that I LOVE YOU, my beloved grace.* "
 
 
 ## A Tender of Love and True
 
-![download (4)](https://github.com/UndyingDevotion/UndyingDevotion/assets/153145826/fe439760-c016-4d44-9764-6bbec42a770a) ![download (5)](https://github.com/UndyingDevotion/UndyingDevotion/assets/153145826/a9dd9f75-0204-4c25-b2e0-7fa2785b3778)
+![pony-town-' ♡ ~ You're love itself!-lie-blinking-fixed-padded-4x](https://github.com/UndyingDevotion/UndyingDevotion/assets/153145826/b679d299-0968-481a-9b13-54e262cfafe3) ![pony-town-' ✿ ~ Then, I love you, venti--sit-blinking-fixed-padded-4x](https://github.com/UndyingDevotion/UndyingDevotion/assets/153145826/521b2c11-4f2f-4a2c-9021-9aaff2e9b46b)
 
+" *You're love itself, My Lady!* " ~ ♡ ~ " *Then, I love you, Venti.* "
 
+Regarding about myself!
 
+https://ladyhana.carrd.co/
+
+<3
 
 
 
