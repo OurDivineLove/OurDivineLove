@@ -42,4 +42,6 @@ https://ladyhana.carrd.co/
 
 That's all! Thank you for reading. You will get to know me more well if we're close friends! <3
 Venily/Haven Supermacy!!
+3rd rentry is  still a wip!
+(Might update my LadyHanacarrd!)
 
