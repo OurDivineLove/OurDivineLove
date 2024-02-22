@@ -31,7 +31,7 @@
 
 Regarding about myself!
 
-https://ladyhana.carrd.co/
+https://rentry.co/WindborneBardURL
 
 <3
 
