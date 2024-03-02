@@ -37,11 +37,11 @@ https://rentry.co/WindborneBardURL
 
 
 
-![Image description](https://i.pinimg.com/originals/30/8a/1d/308a1d57a575a65816cce8380d0224e8.gif)
+![Image description](https://c10.patreonusercontent.com/4/patreon-media/p/post/99579482/d4207677cff14716b2630a52903d1adf/eyJ3Ijo2MjB9/1.jpg?token-time=1710633600&token-hash=mhOoBH4xD0ChiuKDzrGZIzuQB_QoViCHYgDHpbAIYOU%3D)
 
+" Through the vast, and deep shore of the ocean. My heart longs for you the deepest. "
 
 That's all! Thank you for reading. You will get to know me more well if we're close friends! <3
 Venily/Haven Supermacy!!
-3rd rentry is  still a wip!
-(Might update my LadyHanacarrd!)
+2nd & 3rd rentry are still wips!
 
