@@ -41,7 +41,6 @@ https://rentry.co/WindborneBardURL
 
 " Through the vast, and deep shore of the ocean. My heart longs for you the deepest. "
 
-That's all! Thank you for reading. You will get to know me more well if we're close friends! <3
 Venily/Haven Supermacy!!
 2nd & 3rd rentry are still wips!
 
