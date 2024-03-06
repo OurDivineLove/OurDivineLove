@@ -37,7 +37,7 @@ https://rentry.co/WindborneBardURL
 
 
 
-![Image description](https://c10.patreonusercontent.com/4/patreon-media/p/post/99579482/d4207677cff14716b2630a52903d1adf/eyJ3Ijo2MjB9/1.jpg?token-time=1710633600&token-hash=mhOoBH4xD0ChiuKDzrGZIzuQB_QoViCHYgDHpbAIYOU%3D)
+![Image description](https://c10.patreonusercontent.com/4/patreon-media/p/post/99855271/53f2bd6be822427783ce41180d36f550/eyJ3Ijo2MjB9/1.jpg?token-time=1710979200&token-hash=Bl0GJZUuGmE1NM5W9iX-3o2b_f4UUynlFqGNdhbCsLA%3D)
 
 " Through the vast, and deep shore of the ocean. My heart longs for you the deepest. "
 
