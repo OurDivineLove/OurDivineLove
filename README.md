@@ -18,7 +18,7 @@
 
 ## Awakening Love
 
-![Devoted Vows](https://c10.patreonusercontent.com/4/patreon-media/p/post/93612181/d24ea7bfbc1c4a5ea3298420fc1117ca/eyJ3Ijo2MjB9/1.png?token-time=1709510400&token-hash=iqnl_34XoJDiYfCM9ZZvrQd39SAr4IXtTqKaq7eIcGA%3D)
+![Image description](https://c10.patreonusercontent.com/4/patreon-media/p/post/93612181/d24ea7bfbc1c4a5ea3298420fc1117ca/eyJ3Ijo2MjB9/1.png?token-time=1712707200&token-hash=1e7lObz_m3z_upxIdALQq0kvlp78hV1BLq4Sh1znMME%3D)
 
 " *Where Cecilias Bloom, a thousand drafts preceding my declaration that I LOVE YOU, my beloved grace.* "
 
