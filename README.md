@@ -42,5 +42,4 @@ https://rentry.co/WindborneBardURL
 " Through the vast, and deep shore of the ocean. My heart longs for you the deepest. "
 
 Venily/Haven Supermacy!!
-2nd & 3rd rentry are still wips!
-
+Undying PromiseS of Devotion Rentry is still a WIP!
