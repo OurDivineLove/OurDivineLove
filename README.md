@@ -8,14 +8,13 @@
 *I have watched the stars burn and fade, the worlds rise and fall.*
 *But nothing could quench my longing, my desire, my love for you.* " 
 
-![pony-town-⚪- ~ Betrothed to be my wife--sit-blinking-fixed-padded-toy268-4x](https://github.com/UndyingDevotion/UndyingDevotion/assets/153145826/06d6b907-0b93-4d0d-a243-45162c6b3ea1) ![pony-town--Ethereal Empress of Divinity--sit-blinking-fixed-padded-ponyplush-4x](https://github.com/UndyingDevotion/UndyingDevotion/assets/153145826/33f3d09b-8c84-4ef0-9878-c8116b8c3a2a)
-
+![pony-town-⚪- ~ Betrothed to be my wife--sit-blinking-fixed-padded-toy268-4x](https://github.com/UndyingDevotion/UndyingDevotion/assets/153145826/06d6b907-0b93-4d0d-a243-45162c6b3ea1) ![pony-town--Ethereal Empress of Divinity--sit-blinking-fixed-padded-4x](https://github.com/UndyingDevotion/UndyingDevotion/assets/153145826/43d8397c-31dc-453f-965b-2acd05220ad0)
 
 ∘ ——◅▸♡◂▻—— ∘
 
-
 " *Like a Blooming Flower, you never fail to impress me with your attendance.* "
 
+![pony-town-Only you darling, only you--stand-blinking-fixed-padded-toy268-4x](https://github.com/UndyingDevotion/UndyingDevotion/assets/153145826/b0a2b07c-2c9c-453b-acfa-8f5059ed0622) ![pony-town-☁- Bard's Beloved Schatz- DNC-stand-blinking-fixed-padded-ponyplush-4x](https://github.com/UndyingDevotion/UndyingDevotion/assets/153145826/39886ef4-2e7b-4162-994b-457a8fd1c5c6)
 
 ## Awakening Love
 
