@@ -8,7 +8,8 @@
 *I have watched the stars burn and fade, the worlds rise and fall.*
 *But nothing could quench my longing, my desire, my love for you.* " 
 
-![Alt text](https://c10.patreonusercontent.com/4/patreon-media/p/post/98400124/d7fb6d6c43df4a6aa9148eff17697818/eyJ3Ijo2MjB9/1.gif?token-time=1709078400&token-hash=A4zBQbYgj9l7vPFSS8EbPLHMZUaC2GeGyKrFC9EGvfI%3D) ![Alt text](https://c10.patreonusercontent.com/4/patreon-media/p/post/98400124/64fd4deafee34b17a51c76bdba5aa0e9/eyJ3Ijo2MjB9/1.gif?token-time=1709078400&token-hash=fjZrp6Z1SDu0XEFZFtgB0HvDwebzlREIRh6kCCsIRRc%3D)
+![pony-town-⚪- ~ Betrothed to be my wife--sit-blinking-fixed-padded-toy268-4x](https://github.com/UndyingDevotion/UndyingDevotion/assets/153145826/06d6b907-0b93-4d0d-a243-45162c6b3ea1) ![pony-town--Ethereal Empress of Divinity--sit-blinking-fixed-padded-ponyplush-4x](https://github.com/UndyingDevotion/UndyingDevotion/assets/153145826/33f3d09b-8c84-4ef0-9878-c8116b8c3a2a)
+
 
 ∘ ——◅▸♡◂▻—— ∘
 
@@ -37,7 +38,7 @@ https://rentry.co/WindborneBardURL
 
 
 
-![Image description](https://c10.patreonusercontent.com/4/patreon-media/p/post/99855271/53f2bd6be822427783ce41180d36f550/eyJ3Ijo2MjB9/1.jpg?token-time=1710979200&token-hash=Bl0GJZUuGmE1NM5W9iX-3o2b_f4UUynlFqGNdhbCsLA%3D)
+![Image description](https://media.discordapp.net/attachments/1142429037038407743/1223104902805454858/Untitled511_2.png?ex=6618a435&is=66062f35&hm=e9c58fb3b890cec3096c0ca4be6a7d935c1c53233483d8c258efa7a749ae46fe&=&format=webp&quality=lossless&width=420&height=420)
 
 " Through the vast, and deep shore of the ocean. My heart longs for you the deepest. "
 
