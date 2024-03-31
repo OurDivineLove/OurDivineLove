@@ -1,5 +1,7 @@
 # Lover's Perpetuity
 
+Wattpad: https://www.wattpad.com/user/HevenVenno (Where Cecilia Blooms have been already published!)
+
 ![Image description](https://i.pinimg.com/originals/c8/ba/c5/c8bac54c9a235302eb084c6671b69770.gif)
 
 ∘ ——◅▸◊◂▻—— ∘
