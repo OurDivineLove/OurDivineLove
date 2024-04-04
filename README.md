@@ -4,7 +4,7 @@
 <p align="center">Wattpad: https://www.wattpad.com/user/HevenVenno (Where Cecilia Blooms have been already published!)</p>
 
 <p align="center">
-  <img src="https://i.pinimg.com/originals/c8/ba/c5/c8bac54c9a235302eb084c6671b69770.gif" alt="Description of Image">
+  <img src="https://media.discordapp.net/attachments/1142429037038407743/1225426419912282204/Untitled6_20240404204559.png?ex=66211649&is=660ea149&hm=8e9eb5fef16d30a55d792deb2c88a87e264f234aa52e6c100ed7a443e8afedb7&=&format=webp&quality=lossless&width=288&height=420" alt="Description of Image">
 </p>
 
 <p align="center">∘ ——◅▸◊◂▻—— ∘</p>
