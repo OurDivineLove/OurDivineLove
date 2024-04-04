@@ -17,7 +17,7 @@ But nothing could quench my longing, my desire, my love for you. "</p>
 
 <p align="center">∘ ——◅▸♡◂▻—— ∘</p>
 
-<p align="center">"Like a Blooming Flower, you never fail to impress me with your attendance."</p>
+<p align="center">"Yes. Of course I will, my darling." "Do you think you'd kill for me one day?."</p>
 
 ![pony-town-Only you darling, only you--stand-blinking-fixed-padded-toy268-4x](https://github.com/UndyingDevotion/UndyingDevotion/assets/153145826/b0a2b07c-2c9c-453b-acfa-8f5059ed0622) ![pony-town-☁- Bard's Beloved Schatz- DNC-stand-blinking-fixed-padded-ponyplush-4x](https://github.com/UndyingDevotion/UndyingDevotion/assets/153145826/39886ef4-2e7b-4162-994b-457a8fd1c5c6)
 
