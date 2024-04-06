@@ -40,4 +40,3 @@ But nothing could quench my longing, my desire, my love for you. "</p>
 <p align="center">" Through the vast, and deep shore of the ocean. My heart longs for you the deepest. "</p>
 
 <p align="center">Venily/Haven Supermacy!!</p>
-<p align="center">Undying Promises of Devotion Rentry and upcoming lores characters are still WIP!</p>
