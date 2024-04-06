@@ -1,5 +1,10 @@
 # <p align="center">Lover's Perpetuity</p>
 
+<p align="center">LoveSick - Laufey</p>
+
+<p align="center"> ▻ To the memory of your lips. God, I'm so lovesick...◅</p>
+<P align="center">1:05 —◉—————— 3:45</P>
+
 <p align="center">Wattpad: https://www.wattpad.com/user/HevenVenno (Where Cecilia Blooms have been already published!)</p>
 
 <p align="center">
