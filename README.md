@@ -1,6 +1,5 @@
 # <p align="center">Lover's Perpetuity</p>
-<p align="center">Regarding about myself!</p>
-<p align="center">https://rentry.co/WindborneBardURL</p>
+
 <p align="center">Wattpad: https://www.wattpad.com/user/HevenVenno (Where Cecilia Blooms have been already published!)</p>
 
 <p align="center">
