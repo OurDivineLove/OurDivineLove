@@ -5,7 +5,7 @@
 <p align="center"> ▻ To the memory of your lips. God, I'm so lovesick...◅</p>
 <P align="center">1:05 —◉—————— 3:45</P>
 
-<p align="center">Wattpad: https://www.wattpad.com/user/HevenVenno (Where Cecilia Blooms is still on going. / (Prologue)The Awakening Love is about to get released!)</p>
+<p align="center">Wattpad: https://www.wattpad.com/user/HevenVenno (Where Cecilia Blooms/(Prologue)The Awakening Love are published but on going!)</p>
 <p align="center">Although it's still under work in progress! But no worries, I'll update it, so stay tuned!!</p>
 
 <p align="center">
