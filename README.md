@@ -9,7 +9,7 @@
 <p align="center">Although it's still under work in progress! But no worries, I'll update it, so stay tuned!!</p>
 
 <p align="center">
-  <img src="https://cdn.discordapp.com/attachments/1142429037038407743/1225442981541318706/Untitled6_20240404215210.png?ex=662125b6&is=660eb0b6&hm=6e4e11d8e07930ef517c4e57ac98e17dab2b0e3557e6b0e155275d5b2a77754c" alt="Description of Image">
+  <img src="https://media.discordapp.net/attachments/1142429037038407743/1235524242942988359/LADYHANA.jpg?ex=6634af1e&is=66335d9e&hm=4d889d6a6d75e1a237d2f38c4571805ebae83a5ae2d134ce86e03d2e330bb4ea&=&format=webp&width=333&height=420" alt="Description of Image">
 </p>
 
 <p align="center">∘ ——◅▸◊◂▻—— ∘</p>
