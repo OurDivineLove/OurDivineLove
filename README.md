@@ -1,15 +1,15 @@
 # <p align="center">Lover's Perpetuity</p>
 
-<p align="center">LoveSick - Laufey</p>
+<p align="center">Diet Mountain Dew (Demo) - Lana Del Rey</p>
 
-<p align="center"> ▻ To the memory of your lips. God, I'm so lovesick...◅</p>
-<P align="center">1:05 —◉—————— 3:45</P>
+<p align="center"> ▻ Scary? My god!- You're DIVINE - Never was there ever a girl so pretty.◅</p>
+<P align="center">1:53 —◉—————— 3:52</P>
 
 <p align="center">Wattpad: https://www.wattpad.com/user/HevenVenno Where Cecilia Bloomsand The Awakening Love(Prologue) are on drafts, remaking.)</p>
 <p align="center">Although it's still under work in progress! But no worries, I'll update it, so stay tuned!!</p>
 
 <p align="center">
-  <img src="https://media.discordapp.net/attachments/1142429037038407743/1236175790970900571/Untitled22_20240504120311.png?ex=66370deb&is=6635bc6b&hm=9e5155f64b2a52f1984730054459c873847084926119f3fde6f2eb80559f3e70&=&format=webp&quality=lossless&width=420&height=420" alt="Description of Image">
+  <img src="https://scontent.fmnl25-5.fna.fbcdn.net/v/t1.15752-9/442000578_821291806718939_341950619638083508_n.jpg?_nc_cat=110&ccb=1-7&_nc_sid=5f2048&_nc_eui2=AeEKzfhYduqDK8VGPKZxoTfAQu0gojy3-edC7SCiPLf55-D6ADTt92XQGD3mWEfnp2YhVbZh_EjbYWQ9oWAc92rQ&_nc_ohc=p2IrTwFxy1EQ7kNvgGA0_GX&_nc_ht=scontent.fmnl25-5.fna&oh=03_Q7cD1QErhYbaxDZP1p1E5C1GhGkXHiXYfsTgJbAiOe_Ebad7zw&oe=66645851" alt="Description of Image">
 </p>
 
 <p align="center">∘ ——◅▸◊◂▻—— ∘</p>
