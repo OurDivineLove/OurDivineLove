@@ -14,11 +14,11 @@
 
 <p align="center">∘ ——◅▸◊◂▻—— ∘</p>
 
-<p align="center">" I have waited for you, my goddess, for eons and ages.
-I have watched the stars burn and fade, the worlds rise and fall.
-But nothing could quench my longing, my desire, my love for you. "</p> 
+<p align="center">"Please...just one kiss, your grace."                        "Please what barbatos? A kiss?"</p> 
 
-![LordBarbatos](https://github.com/UndyingDevotion/UndyingDevotion/assets/153145826/06d6b907-0b93-4d0d-a243-45162c6b3ea1) ![LadyHana](https://github.com/UndyingDevotion/UndyingDevotion/assets/153145826/43d8397c-31dc-453f-965b-2acd05220ad0)
+![pony-town-Please--just one kiss, ur grce-boop-blinking-fixed-padded-4x](https://github.com/OurDivineLove/OurDivineLove/assets/153145826/c07e7ece-e27b-4175-b58d-709f78192c1e
+) ![pony-town-Please what, barbatos_-boop-blinking-fixed-padded-4x](https://github.com/OurDivineLove/OurDivineLove/assets/153145826/fe69b1cb-729a-4590-9a2b-fcb9dce29c23)
+
 
 <p align="center">∘ ——◅▸♡◂▻—— ∘</p>
 
