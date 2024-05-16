@@ -1,11 +1,11 @@
-# <p align="center">Lover's Perpetuity</p>
+# <p align="center">Heavenly Bond</p>
 
 <p align="center">Diet Mountain Dew (Demo) - Lana Del Rey</p>
 
 <p align="center"> ▻ Scary? My god!- You're DIVINE - Never was there ever a girl so pretty.◅</p>
 <P align="center">1:53 ———◉———— 3:52</P>
 
-<p align="center">Wattpad: https://www.wattpad.com/user/HevenVenno Where Cecilia Bloomsand The Awakening Love(Prologue) are on drafts, remaking.)</p>
+<p align="center">Wattpad: https://www.wattpad.com/user/HevenVenno Where Cecilia Blooms and The Awakening Love(Prologue) are on drafts, remaking.)</p>
 <p align="center">Although it's still under work in progress! But no worries, I'll update it, so stay tuned!!</p>
 
 <p align="center">
