@@ -1,9 +1,9 @@
 # <p align="center">Heavenly Bond</p>
 
-<p align="center">Diet Mountain Dew (Demo) - Lana Del Rey</p>
+<p align="center">Brooklyn Baby - Lana Del Rey (CODED <3)</p>
 
-<p align="center"> ▻ Scary? My god!- You're DIVINE - Never was there ever a girl so pretty.◅</p>
-<P align="center">1:53 ———◉———— 3:52</P>
+<p align="center"> ▻ Yeah, my husband's pretty cool, but he's not as cool as me.◅</p>
+<P align="center">4:49 ———————◉—— 5:51</P>
 
 <p align="center">Wattpad: https://www.wattpad.com/user/HevenVenno Where Cecilia Blooms and The Awakening Love(Prologue) are on drafts, remaking.)</p>
 <p align="center">Although it's still under work in progress! But no worries, I'll update it, so stay tuned!!</p>
