@@ -3,7 +3,7 @@
 <p align="center">Brooklyn Baby - Lana Del Rey (CODED <3)</p>
 
 <p align="center"> ▻ Yeah, my husband's pretty cool, but he's not as cool as me.◅</p>
-<P align="center">4:49 ———————◉—— 5:51</P>
+<P align="center">4:49 ——————◉—— 5:51</P>
 
 <p align="center">Wattpad: https://www.wattpad.com/user/HevenVenno Where Cecilia Blooms and The Awakening Love(Prologue) are on drafts, remaking.)</p>
 <p align="center">Although it's still under work in progress! But no worries, I'll update it, so stay tuned!!</p>
