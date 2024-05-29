@@ -20,7 +20,7 @@
 
 <p align="center"> ▻ I like the way you kiss me, I can tell you miss me.◅</p>
 <P align="center">0:07 —◉——————— 2:22</P>
-<p align="center">Paraluman - Adie</p>
+<p align="center">I like the way you kiss me - Artemas</p>
 
 <p align="center">∘ ——◅▸◊◂▻—— ∘</p>
 
