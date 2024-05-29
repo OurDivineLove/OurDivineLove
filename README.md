@@ -1,16 +1,16 @@
-# <p align="center">Heavenly Bond</p>
+# <p align="center">𝑪𝒆𝒍𝒆𝒔𝒕𝒊𝒂'𝒔 𝑬𝒎𝒃𝒓𝒂𝒄𝒆</p>
 
 <p align="center">.｡.:* ♡ *: .｡.</p>
 
-<p align="left">"Your heart's are delicate like glass...yours especially."</p>
+<p align="left">"𝑌𝑜𝑢𝑟 ℎ𝑒𝑎𝑟𝑡'𝑠 𝑎𝑟𝑒 𝑑𝑒𝑙𝑖𝑐𝑎𝑡𝑒 𝑙𝑖𝑘𝑒 𝑔𝑙𝑎𝑠𝑠...𝑦𝑜𝑢𝑟𝑠 𝑒𝑠𝑝𝑒𝑐𝑖𝑎𝑙𝑙𝑦.."</p>
 
-<p align="right">"...You think so?"</p>
+<p align="right">"...𝑌𝑜𝑢 𝑡ℎ𝑖𝑛𝑘 𝑠𝑜?"</p>
 
-<p align="left">"Yes. You're worthy of my grace."</p>
+<p align="left">"𝑌𝑒𝑠. 𝑌𝑜𝑢'𝑟𝑒 𝑤𝑜𝑟𝑡ℎ𝑦 𝑜𝑓 𝑚𝑦 𝑔𝑟𝑎𝑐𝑒."</p>
 
-<p align="right">"Your grace?"</p>
+<p align="right">"𝑌𝑜𝑢𝑟 𝑔𝑟𝑎𝑐𝑒?"</p>
 
-<p align="left">"I'm saying, I like you."</p>
+<p align="left">"𝐼'𝑚 𝑠𝑎𝑦𝑖𝑛𝑔, 𝐼 𝑙𝑖𝑘𝑒 𝑦𝑜𝑢."</p>
 
 <p align="center">∘ ——◅▸◊◂▻—— ∘</p>
 
@@ -30,4 +30,4 @@
 ) ![pony-town-Please what, barbatos_-boop-blinking-fixed-padded-4x](https://github.com/OurDivineLove/OurDivineLove/assets/153145826/fe69b1cb-729a-4590-9a2b-fcb9dce29c23)
 
 
-<p align="center">∘ ——◅▸♡◂▻—— ∘</p>
+<p align="center">∘ .｡.:* ♡ *: .｡. ∘</p>
