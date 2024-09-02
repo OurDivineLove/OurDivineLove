@@ -1,4 +1,4 @@
-# <p align="center">𝑪𝒆𝒍𝒆𝒔𝒕𝒊𝒂'𝒔 𝑬𝒎𝒃𝒓𝒂𝒄𝒆</p>
+# <p align="center">𝑳𝒐𝒗𝒆𝒓'𝒔 𝑷𝒆𝒓𝒑𝒆𝒕𝒖𝒊𝒕𝒚</p>
 
 <p align="center">.｡.:* ♡ *: .｡.</p>
 
