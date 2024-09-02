@@ -22,8 +22,8 @@
   ![pony-town-Please--just one kiss, ur grce-boop-blinking-fixed-padded-4x](https://github.com/OurDivineLove/OurDivineLove/assets/153145826/c07e7ece-e27b-4175-b58d-709f78192c1e
 ) ![pony-town-Please what, barbatos_-boop-blinking-fixed-padded-4x](https://github.com/OurDivineLove/OurDivineLove/assets/153145826/fe69b1cb-729a-4590-9a2b-fcb9dce29c23)
 
-<p align="center"> ▻ I would die for your heaven. I could lie here forever, everynight we're together.◅</p>
+<p align="center"> ▻ This I promised you.◅</p>
 <P align="center">0:27 ——◉—————————— 3:25</P>
-<p align="center">Heaven - The Neighbourhood</p>
+<p align="center">*NSYNC</p>
 
 <p align="center">∘ .｡.:* ♡ *: .｡. ∘</p>
